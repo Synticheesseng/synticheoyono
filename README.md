@@ -1,2 +1,0 @@
-# synticheoyono
-Mon portfolio
